@@ -1,4 +1,4 @@
-![https://tenor.com/bMCCn.gif]
+![](https://tenor.com/bMCCn.gif)
 
 ♡☆Hi! im nene/xio,here is a introduction about Me《this is for ponytown》
 

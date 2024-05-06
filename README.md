@@ -1,3 +1,5 @@
+![https://tenor.com/bMCCn.gif]
+
 ♡☆Hi! im nene/xio,here is a introduction about Me《this is for ponytown》
 
 ● I'm very nice! talk to me on pt anytime,even if im talking to someone,

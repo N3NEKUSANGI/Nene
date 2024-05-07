@@ -19,8 +19,6 @@ I would appreciate if you int with me first ♡♡♡♡ im a very shy person so
 
 ●If im rude plz tell me!!
 
-●《I'm Cupioromantic》
-
 ●That's all for now
 
                               dicord:Remiheart

@@ -9,7 +9,7 @@ I would appreciate if you int with me first ♡♡♡♡ im a very shy person so
 
 ●One thing to let you know...I can't really give good advice.So I'm sorry if my advice sounds dryier than my hair 😔
 
-●I only play pt with two character for now《my nene and Alice cos》I have two different styles 
+●I only play pt with two character for now《my nene and Alice cos》I have three different styles!
 
 ●Don't copy my palette or my cosplay,if you want inspo just ask me
 

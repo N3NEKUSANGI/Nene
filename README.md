@@ -4,6 +4,7 @@
 ●I'm super nice!I'm only rude if you are >_< so plz int!
 ●I have a phobia of random holes《trypophobia)
 ●That's all for now:)) 
+
                               dicord:Remiheart
                               pintress:xiogemini 
                               Spotify:Remiheart♡

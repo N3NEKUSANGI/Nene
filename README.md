@@ -1,25 +1,9 @@
-♡☆Hi! im nene/xio,here is a introduction about Me《this is for ponytown》
-
-● I'm very nice! talk to me on pt anytime,even if im talking to someone,
-I would appreciate if you int with me first ♡♡♡♡ im a very shy person so idk how to really continue or start a conversation 
-
-●I have major social anxiety and anxiety itself so srry if I dont really reply.... but I will try my best!
-
-●Like i said on my profile,if i compliment you it means I wanna be friends with you or I find you interesting! so please int with me after😭😭
-
-●One thing to let you know...I can't really give good advice.So I'm sorry if my advice sounds dryier than my hair 😔
-
-●I only play pt with two character for now《my nene and Alice cos》I'm experimenting with styles!
-●Don't copy my palette or my cosplay,if you want inspo just ask me
-
-●If your with your own friends《who idk》I probably won't text you... I'm sorry I just feel like I'm interrupting. But if you text me I will respond!
-
+♡☆Hi! im nene/xio
+● I'm very nice! talk to me on pt anytime,even if im talking to someone
+●If i compliment you it means I wanna be friends with you or I find you interesting! so please int with me after😭😭
+●I'm super nice!I'm only rude if you are >_< so plz int!
 ●I have a phobia of random holes《trypophobia)
-
-●If im rude plz tell me!!
-
-●That's all for now
-
+●That's all for now:)) 
                               dicord:Remiheart
                               pintress:xiogemini 
                               Spotify:Remiheart♡
